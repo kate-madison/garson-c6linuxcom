@@ -1,5 +1,5 @@
 ****************************************
-HOW TO GET FREE V.BUCKS - 2021 UNLIMITED V-BUCKS GENERATOT (KSM90TN8)
+HOW TO GET FREE V.BUCKS - 2021 UNLIMITED V-BUCKS GENERATOR (KSM90TN8)
 ****************************************
 
 
